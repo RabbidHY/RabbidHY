@@ -1,8 +1,2 @@
 # RabbidHY
-STAY FOCUS👌
-
-BE PATIENT AND STRONG😊
-
-INTERESTED IN CLOUD COMPUTING😉
-
-A HAPPY RABBID~!😜
+Trying to be a great person who can contribute to the society and make people live happier life.
